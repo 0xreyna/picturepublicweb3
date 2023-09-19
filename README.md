@@ -1,4 +1,5 @@
-# MY PICTURES PUBLIC WEB3
+# My web3 profile
+
 - 0xreyna (1).jpg
 - 0xreyna (2).jpg
 - 0xreyna (3).jpg
