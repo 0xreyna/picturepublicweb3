@@ -1,4 +1,4 @@
-# My web3 profiles pictures
+# My web3 profiles picture
 - 0xreyna (1).jpg
 - 0xreyna (2).jpg
 - 0xreyna (3).jpg
